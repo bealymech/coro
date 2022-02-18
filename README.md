@@ -6,7 +6,7 @@ Lien de prof: https://cnam-my.sharepoint.com/:f:/g/personal/eric_soutil_lecnam_n
 
 Mail de E. Soutil : eric.soutil@lecnam.net 
 
-Examen: 18 Mars 2022
+Examen : 18 Mars 2022
 
 ### Madame 
 
