@@ -16,4 +16,6 @@ Mail d'Ana Flavia Macambira : af.macambira@gmail.com
 
 Final Projet : http://web4.ensiie.fr/~faye/AnaFlavia/Project___ENSIIE___2022.pdf
 
+Maximum 3 personnes par groupe
+
 Date Rendu : 25 Mars 2022 
